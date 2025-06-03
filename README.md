@@ -31,4 +31,4 @@ I consider **technology as my lifelong partner** and I'm always exploring how I 
 
 ### 📫 Let's Connect!
 - 📧 Email: kartikeybaghel@hotmail.com
-- 🌐 Website: worldoftechnologyscience.blogspot.com
+- 🌐 Website: https://worldoftechnologyscience.blogspot.com
