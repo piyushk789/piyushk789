@@ -30,5 +30,8 @@ I consider **technology as my lifelong partner** and I'm always exploring how I 
 ---
 
 ### 📫 Let's Connect!
-- 📧 Email: kartikeybaghel@hotmail.com
+- 📧 Email: kartikey.software@gmail.com
 - 🌐 Website: https://worldoftechnologyscience.blogspot.com
+
+*Follow my Second Account*
+- 🔗 Github: https://github.com/Kartikey-Baghel
